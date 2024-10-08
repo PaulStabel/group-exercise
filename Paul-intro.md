@@ -1,1 +1,0 @@
-Pual, Dutchland, Computer, nothing
